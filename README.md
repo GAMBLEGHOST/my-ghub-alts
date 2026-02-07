@@ -1,6 +1,7 @@
 # my alts
-@BOOLYNSKl @VEERONlCA
+@BOOLYNSKl
 @connie-boolynski
-@EclipseCocoa
-@PRINCESS-MALICE
-@SugarfIy < other main which i never use
+@connie-irl
+@COLUMBINA-ANGEL
+some more i guess,,
+these are alts and backups
