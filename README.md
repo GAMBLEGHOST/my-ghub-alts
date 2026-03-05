@@ -4,9 +4,8 @@
 @connie-irl
 @COLUMBINA-ANGEL
 @VEERONlCA
-@tiaa-boolynski
+@CONNlEBOOLYNSKI
 @twistedconnie
-some more i guess,,
 these are alts and backups
 
 
