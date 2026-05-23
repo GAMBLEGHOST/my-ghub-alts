@@ -2,7 +2,8 @@
 @BOOLYNSKl
 @connie-boolynski
 @connie-irl
-@COLUMBINA-ANGEL
+@dollbites
+@russiandolly
 @connieboolynski
 @CONNlEBOOLYNSKI
 @twistedconnie
