@@ -2,13 +2,13 @@
 @BOOLYNSKl
 @connie-boolynski
 @connie-irl
-@dollbites
-@russiandolly
+@dol9hinn
+@dollbecca
 @connieboolynski
 @CONNlEBOOLYNSKI
 @twistedconnie
 these are alts and backups.
-Tho if i dissapear and dont even use any of these accs like a backup js know that its not me (unless its me if i js give proofs obv, you can think like im gone if i dont revamp and dont be inactive on pt for too long)
+Tho if i dissapear and dont even use any of these accs like a backup js know that its not me (unless its me if i js give proofs obv, you can think like im gone if i dont revamp and dont be inactive on pt for too long unless this account because im dol9hinn now)
 
 
 
